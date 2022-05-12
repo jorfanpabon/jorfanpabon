@@ -71,7 +71,7 @@ Focused on creating smart, high-performance solutions with technology.
 - Linux
 
 
-📫 How to reach me... **jorfanpabon@gmail.com**
+📫 Contact me with my email **jorfanpabon@gmail.com**
 
 ## Links
 
